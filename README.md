@@ -47,9 +47,9 @@
 
 ## 📬 Где меня найти
 
-- Telegram: [ссылка на твой ТГ]
-- HeadHunter: [ссылка на твое резюме]
-- Email: [твой_рабочий_email@example.com]
+- [Telegram](https://t.me/imthecook)
+- [Max](https://max.ru/u/f9LHodD0cOJGaXixg8cIcgFUYPpYEd053jLq7lhyXRQuNnedV1eaM0Crokw) 
+- [HH](https://hh.ru/resume/edef223cff109ea3a60039ed1f365745743861)
 
 ## 🔍 Что ищу
 
